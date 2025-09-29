@@ -1,1 +1,1 @@
-# F-rd-szoba-kozmetikus-
+fürdőszoba kozmetikus
